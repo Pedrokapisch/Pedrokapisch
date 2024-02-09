@@ -2,7 +2,7 @@
 - 👀 I’m interested in nerd things 
 - 🌱 I’m currently learning to program
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach me :pedro-gugusto@hotmail.com - https://twitter.com/Pedrokapisch
+- 📫 How to reach me :pedrokapisch@hotmail.com - https://www.linkedin.com/in/pedro-augusto-kapisch-da-silva-994403211/
 - ⚡ Fun fact: im a medical X-ray technician
 
 <!---
